@@ -1,5 +1,5 @@
 
-__<p align="center"><|°_°|> my name is krampat!! </p>__
+__<p align="center"><|°_°|> my name is krampat!! <sup>ENG/RUS/UA</sup></p>__
 
 <p align="center">i like err dragon ball and aphex twin and death grips and apple juice..</p>
 
