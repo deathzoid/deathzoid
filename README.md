@@ -1,7 +1,7 @@
 
 __<p align="center"><|°_°|> my name is death <sup>ENG/RUS/UA</sup></p>__
 
-<p align="center">i like err dragon ball and aphex twin and death grips and apple juice..</p>
+<p align="center">i like apple juice and green bugs</p>
 
 <p align="center">number #1 frieza and bondrewd kin</p>
 
