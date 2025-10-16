@@ -8,4 +8,4 @@ __<p align="center">i am deathzoid ദ്ദി •⩊• ) </sup></p>__
 <p align="center">
   <img src="https://github.com/deathzoid/deathzoid/blob/main/allsans.gif?raw=true">
 </p>
-<sup>READ RENTRY</sup>
+<sup>strongest soriel warrior</sup>
