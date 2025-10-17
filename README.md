@@ -1,5 +1,5 @@
 
-__<p align="center">i am deathzoid ദ്ദി •⩊• ) </sup></p>__
+__<p align="center">hi im deathzoid</sup></p>__
 
 <p align="center">i like apple juice and green bugs</p>
 
